@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Shrijith M R (@Shri21git)!
+# 👋 Well hello there, I'm Shrijith M R (@Shri21git)!
 
 Welcome to my GitHub profile! I'm passionate about learning, constantly improving, and gaming. 🚀
 
